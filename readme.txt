@@ -1,1 +1,1 @@
-This is readme file and this is edited by sallu and again edited by sallu
+This is readme file and this is edited by sallu
